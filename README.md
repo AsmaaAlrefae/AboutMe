@@ -20,8 +20,7 @@ Here are some ideas to get you started:
 
 💬 Ask me about my experience working as a data analyst and my passion for using data to solve problems.
 
-📫How to reach me: 
--[LinkedIn](https://www.linkedin.com/in/asmaaalrefae/)
+📫How to reach me:  -[LinkedIn](https://www.linkedin.com/in/asmaaalrefae/)
 
  
 ⚡Fun fact: I love dates 🌴and usually carry a plastic bag full of them. Don't act weird if I offer you some 😁
@@ -32,7 +31,7 @@ Here are some ideas to get you started:
 
 - MBTI test: ISTJ-T
 
-- StandOut test: Connector and equalizer
+- StandOut test: Creator and Influencer
 
 I hope that sets the tone for how weird I am 😂.
 
